@@ -1,1 +1,1 @@
-god is good
+i belive in god
