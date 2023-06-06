@@ -1,1 +1,1 @@
-god is good
+My first readme
